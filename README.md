@@ -1,0 +1,1 @@
+# Kim-s-ci-ludzie-fizyki-niutona
